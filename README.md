@@ -1,3 +1,3 @@
 # learning
 start to learn
-by Amrita
+by Amrita simi
